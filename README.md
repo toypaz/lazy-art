@@ -1,4 +1,4 @@
-# all of these are wips
+# all of these are wips / i have a lotta artstyles
 <hr>
 <p align=“center”>
 <img width="2048" height="2048" alt="Untitled15_20261114232940" src="https://github.com/user-attachments/assets/143d842f-29ab-4bcd-ac25-fde41af19abb" />
